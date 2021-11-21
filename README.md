@@ -1,6 +1,6 @@
 # trucoswindows
 Web trucoswindows.net en venta
-Contacto en  trucoswindows@gmail.com
+Contacto en  trucoswindows @ gmail.com
 
 Desde el año 2003 este ha sido mi hobbi y el de mucha otra gente. Si me pondría a enumerarlos (han sido tantos ), seguramente me dejaría alguno y seria injusto, así que cómo ellos ya saben quienes son, solo agradecerles la ayuda prestada para que el foro y la web funcionaran correctamente.
 
